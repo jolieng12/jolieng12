@@ -2,8 +2,8 @@
 - 👀 I’m interested in coffee and cool things.
 - 🌱 I’m currently learning too many things.
 - 💞️ I’m looking to collaborate on awesome projects.
-- 📫 How to reach me: sliding into the DMs.
-- 😄 Pronouns: she/her.
+- 📫 How to reach me: jolieng@uw.edu
+- 😄 Pronouns: any.
 - ⚡ Fun fact: I love tacos so much..
 
 <!---
